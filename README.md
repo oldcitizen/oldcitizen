@@ -9,7 +9,7 @@ I Play some games too like Minecraft, FPS Shooter Games, Parkour Games, RPG Game
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤMy Discord Accs 
 
 ㅤ[![Discord Presence](https://lanyard.cnrad.dev/api/1024297429127933952?theme=light&idleMessage=Just%20Chilling.&showDisplayName=true&hideStatus=true)](https://discord.com/users/1024297429127933952)
-ㅤㅤㅤㅤㅤㅤ[![Discord Presence](https://lanyard.cnrad.dev/api/860677401884622879?idleMessage=Mystery%20(Account%20for%20Business%20Requests%20Only))](https://discord.com/users/860677401884622879) 
+
 
 ## ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ  
 <p align="center">
